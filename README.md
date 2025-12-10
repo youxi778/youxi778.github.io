@@ -1,10 +1,9 @@
 欢迎来到ACG黄游资源网，这里是专为成熟玩家打造的数字乐园。我们始终秉持"致力于为绅士服务"的核心理念，倾力构建一个涵盖SLG,RPG,ADV,ACT冒险游戏与黄漫同人下载的完整娱乐生态。在这里，您不仅能发现精彩游戏，更能找到志同道合的伙伴，共同探索成人向娱乐的无限可能。
 
-网站资源在线地址: https://www.ntrku.com
+ <p>网站资源库在线下载地址:  <a href="https://www.ntrku.com" target="_bank">             https://www.ntrku.com</a></p>
+  <p>网站资源库在线下载地址:  <a href="https://www.ntrku.com" target="_bank">             https://www.ntrku.com</a></p>
+   <p>网站资源库在线下载地址:  <a href="https://www.ntrku.com" target="_bank">             https://www.ntrku.com</a></p>
 
-网站资源在线地址: https://www.ntrku.com
-
-网站资源在线地址: https://www.ntrku.com
 
 游戏宝库：多元类型的深度呈现 SLG策略游戏殿堂 这里汇聚了需要深思熟虑的精品策略游戏。《帝国后宫物语》将政治博弈与情感经营完美结合，玩家需要在权力平衡中做出关键抉择；《少女指挥官》以其精密的战术系统和丰富的养成要素著称。每款游戏都配有详细的策略深度分析和多结局路线图，让玩家在运筹帷幄中体验征服的乐趣。
 
